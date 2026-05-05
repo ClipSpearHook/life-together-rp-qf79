@@ -1,4 +1,4 @@
-
+new life together rp Script is the best life together rp Script, featuring auto-sell and auto-collect. Safe and powerful for all your needs.
 
 
 
